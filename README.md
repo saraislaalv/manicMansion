@@ -1,0 +1,1 @@
+Spillet går ut på at man skal frakte sauene over til den andre siden av spillbrettet, uten å bli tatt av spøkelsene. Du kan bare frakte en sau av gangen. Spillet blir vanskeligere jo lengre du spiller.
